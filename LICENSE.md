@@ -1,4 +1,4 @@
-#  
+#  Experience ink game like never before with ink game custom Scripts, the #1 Script. Includes private server access and no cooldown for unbeatable
 
 
 
